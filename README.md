@@ -1,2 +1,2 @@
 20213075 Jeon Seokhwan
-Kookmin Univ. SW
+Kookmin Univ. SW Dept.
